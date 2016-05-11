@@ -16,3 +16,7 @@ https://mega.co.nz/#!hUA3VD4A!N7DkyAmQC2pllxWSkqbLZPY4LY2PHbzyJWy91V1TmyY
 ## DAEMON TOOLS LITE Full
 
 https://mega.co.nz/#!XkwVwBTA!hHaDBd8Efk7IKxvJzzs6HSv-pUzbkaqKZc3NftjLDlE
+
+## Emulador de PS2
+
+https://mega.co.nz/#!KtM0gKCK!Xj7OVM3QGDnZLoxVkf3gufhMYEfC_ogNNTwEW12Lu_0
